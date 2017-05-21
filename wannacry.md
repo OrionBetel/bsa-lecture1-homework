@@ -4,7 +4,7 @@
 
 ![alt text](https://pbs.twimg.com/media/C_n2dzcW0AAsnG-.jpg:small "Wana decrypt0r 2.0 in action")
 
-Некоторые компании советуют своим пользователям выключить свои компьютеры и ждать дальшейших инструкций.
+Некоторые компании советуют своим пользователям выключить свои компьютеры и ждать дальнейших инструкций.
 
 ![alt text](https://habrastorage.org/web/3cd/f32/c07/3cdf32c07c2f416085676d5e9e8c86fd.jpg)
 
